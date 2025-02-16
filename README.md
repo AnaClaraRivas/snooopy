@@ -1,1 +1,1 @@
-https://anaclararivas.github.io/template_ideias/
+ https://anaclararivas.github.io/snooopy/
